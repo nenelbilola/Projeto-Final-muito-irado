@@ -1,0 +1,6 @@
+![modelo](https://github.com/user-attachments/assets/d0bc88f0-1364-4a5f-b8e7-17525a8c6c9b)
+![fut2](https://github.com/user-attachments/assets/b0def147-ddf5-48fe-9cd0-aff24608122b)
+![goat](https://github.com/user-attachments/assets/5a5e07f8-2399-458f-aeca-8e059c186c9d)
+![baia](https://github.com/user-attachments/assets/34e778a1-67c3-49f8-939b-75fbde85fb69)
+![mago](https://github.com/user-attachments/assets/e932648e-0f05-41d3-8413-e2e4780cf6d1)
+![sin](https://github.com/user-attachments/assets/e275cdac-0792-4ba1-93ae-b6ea48c02448)
